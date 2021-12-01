@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ndycuong
-- 👀 I’m interested in listening to music, searching on the web, 
+- 👀 I like data, i want to be a DA, with a little knowledge of DE and DS. 
 - 🌱 I’m currently learning information system
 - 💞️ I’m looking to collaborate on studying
 - 📫 How to reach me nguyenduycuong1501@gmail.com

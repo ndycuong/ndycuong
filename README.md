@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @ndycuong
+- 👋 Hi, I’m @ndycuong, call me Andy
 - Nothing is impossible.
- 
+- Making it count.
 
 
 <!---
